@@ -1,1 +1,0 @@
-# rica-portfolio-v2
